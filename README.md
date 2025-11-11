@@ -91,5 +91,5 @@ Find the remaining course material and videos on my co-trainer, [Samiya's reposi
 
 Feel free to explore the sessions and share them with anyone preparing for IELTS!
 
-👉 Also check out my [LinkedIn post](https://www.linkedin.com/posts/sairaabdulwahid_ielts-volunteerteaching-ieltsspeaking-activity-7372280184663683073-7JVJ?utm_source=share&utm_medium=member_desktop&rcm=ACoAAEPUvmIB1owGWYvKeEyHqZspUdRFFwCDerc) on **helpful tips & strategies for the IELTS Speaking module**
+👉 Also, check out my [LinkedIn post](https://www.linkedin.com/posts/sairaabdulwahid_ielts-volunteerteaching-ieltsspeaking-activity-7372280184663683073-7JVJ?utm_source=share&utm_medium=member_desktop&rcm=ACoAAEPUvmIB1owGWYvKeEyHqZspUdRFFwCDerc) on **helpful tips & strategies for the IELTS Speaking module**
  for additional guidance and practice ideas.
